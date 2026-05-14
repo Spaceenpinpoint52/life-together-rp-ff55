@@ -1,4 +1,4 @@
-#  
+#  life together rp hidden Scripts offers the most advanced life together rp Script, with auto-upgrade and custom skins. Perfect for dominating any
 
 
 
